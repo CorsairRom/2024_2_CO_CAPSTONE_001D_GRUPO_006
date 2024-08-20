@@ -1,0 +1,2 @@
+# 2024_2_CO_CAPSTONE_001D_GRUPO_006
+Repositorio Capstone 2024
